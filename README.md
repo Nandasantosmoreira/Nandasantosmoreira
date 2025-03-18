@@ -11,7 +11,7 @@
 
 - 📫 Você me encontra através do e-mail **nandasmiranda2014@gmail.com**
 
-- 📄 Estou em transição de carreira e aqui estão todas minhas habilidades [www.linkedin.com/in/fernanda-santos-moreira-analista-python-r-sql](www.linkedin.com/in/fernanda-santos-moreira-analista-python-r-sql)
+- 📄 Sobre minha carreira e todas minhas habilidades [www.linkedin.com/in/fernanda-santos-moreira-analista-python-r-sql](www.linkedin.com/in/fernanda-santos-moreira-analista-python-r-sql)
 
 - ⚡ Um fato divertido **Sou remadora e instrutora de Canoa Havaiana**
 
